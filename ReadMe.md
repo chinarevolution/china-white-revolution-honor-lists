@@ -18,7 +18,8 @@
 ![](https://github.com/chinarevolution/china-white-revolution-honor-lists/raw/master/paper.jpeg?raw=true)
 
 ## 1.  英雄荣耀榜 Hero Honor List
-1. 北京四通桥勇士彭载舟
+1. 深圳无名举牌哥
+2. 北京四通桥勇士彭载舟
 2. 所有超人哥们
 3. 所有上街的，转发的， 支持的，枪口抬高1寸的人
 
